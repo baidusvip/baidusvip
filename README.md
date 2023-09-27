@@ -7,16 +7,29 @@
 每天更新超级会员账号免费分享给大家，大家使用完成后及时退出登录客户端，要不然一直占用，会导致后面的人登录不上！！<br>
 <br>
 
-9.27号：
-账号1：https://syxvip.jiasupan.top/?qr=82rosvUugNZVieXIH7czSGmKDwlqn0O4
-使用教程：https://note.youdao.com/s/TgYCfkvv<br>
+9.27号：<br>
+账号1：<br>
+https://syxvip.jiasupan.top/?qr=82rosvUugNZVieXIH7czSGmKDwlqn0O4
+<br>
+使用教程：https://note.youdao.com/s/TgYCfkvv
+<br>
 <br>
 <br>
 
-9.26号：
-账号1：https://jiasupan.top/?qr=y7CAhvQcgsMeUbSomNODdijKR81kf5zV<br>
-账号2：https://jiasupan.top/?qr=4RvOtkQLM2zXc17diDFZlf8KIb6yoCVg<br>
-使用教程：https://note.youdao.com/s/TgYCfkvv<br>
+
+9.26号：<br>
+账号1：
+<br>
+https://jiasupan.top/?qr=y7CAhvQcgsMeUbSomNODdijKR81kf5zV
+<br>
+账号2：
+<br>
+https://jiasupan.top/?qr=4RvOtkQLM2zXc17diDFZlf8KIb6yoCVg
+<br>
+使用教程：
+<br>
+https://note.youdao.com/s/TgYCfkvv<br>
+<br>
 
 github不是每天登陆，更新的不是很及时。<br>
 如果不能用的话，群内每天更新，自取Q裙： 717235625  <br>
