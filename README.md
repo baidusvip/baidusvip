@@ -1,7 +1,7 @@
 每日分享百度网盘SVIP超级会员会员账号|百度云会员|百度网盘云账号,不定期更新,欢迎使用.md
 <br>
 每日分享，百度网盘SVIP超级会员会员账号|bd账号|bd网盘|百度云会员|百度网盘云账号,不定期更新,欢迎使用
-给大家分享免费的各大平台会员账号，账号封的比较严重，如果不能用就换一个。
+如果不能用的话，或者失效了请联系VX更新：xzhushou007<br>。
 <br>
 
 百度网盘SVIP会员账号:<br>
@@ -93,5 +93,5 @@ https://jiasupan.top/?qr=4RvOtkQLM2zXc17diDFZlf8KIb6yoCVg
 https://note.youdao.com/s/TgYCfkvv<br>
 <br>
 
-github不是每天登陆，更新的不是很及时。<br>
-如果不能用的话，群内每天更新，自取Q裙： 717235625  <br>
+
+
