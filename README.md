@@ -14,6 +14,16 @@
 <br>
 <br>
 
+<br>
+之前账号被封，望大家切用且珍惜，给个satrt让我更有动力！
+<br>
+
+10.16号：<br>
+账号1：<br>
+https://jiasupan.top/?qr=KJoxWrMCpehA21Ft8EOvz9VuwPbI5BdL
+<br>
+<br>
+
 10.12号：<br>
 账号1：<br>
 https://jiasupan.top/?qr=K1OXitU0HI4VWupvgBazNE3ceC6qlbJd
