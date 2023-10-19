@@ -8,15 +8,20 @@
 每天更新超级会员账号免费分享给大家，大家使用完成后及时退出登录客户端，要不然一直占用，会导致后面的人登录不上！！<br>
 <br>
 <br>
-## 赠人玫瑰，手留余香，如果帮到了您，请给个star~
+## 望大家切用且珍惜，给个satr让我更有动力！~
 <br>
 使用教程：https://note.youdao.com/s/TgYCfkvv
 <br>
+##### 账号全被被封了刚解开，大家尽量只扫码登录一个客户端使用，避免账号被封，同一ip多设备登录的我这边会踢下线哈！~
+<br>
+10.19号：
+<br>
+账号1：<br>https://jiasupan.top/?qr=FVSzt7H3xJvGPLIuQ9kwmhKEA2BWp8iq <br>
+账号2：<br>https://jiasupan.top/?qr=KJoxWrMCpehA21Ft8EOvz9VuwPbI5BdL
+<br>
 <br>
 
-<br>
-之前账号被封，望大家切用且珍惜，给个satr让我更有动力！！
-<br>
+之前账号被封！！<br>
 
 10.16号：<br>
 账号1：<br>
