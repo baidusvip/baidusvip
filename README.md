@@ -9,7 +9,7 @@
 <br>
 <br>
 ## 望大家且用且珍惜，给个satr让我更有动力！~
-#### 登录我会收到通知，不给star的5分钟后 踢下线了哦~
+#### 登录我会收到通知，不给star的，登录3分钟后踢下线~
 <br>
 使用教程：https://note.youdao.com/s/TgYCfkvv
 <br>
