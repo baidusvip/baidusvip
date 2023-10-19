@@ -9,11 +9,21 @@
 <br>
 <br>
 ## 望大家切用且珍惜，给个satr让我更有动力！~
+###### 登录我会收到通知，不给star的我踢下线了哦~
 <br>
 使用教程：https://note.youdao.com/s/TgYCfkvv
 <br>
+<br>
 
-#### 账号全被被封了刚解开，大家尽量只扫码登录一个客户端使用，避免账号被封，同一ip多设备登录的我这边会踢下线哈！~
+10.19号第二批：
+<br>
+账号1：<br>https://jiasupan.top/?qr=FVSzt7H3xJvGPLIuQ9kwmhKEA2BWp8iq <br>
+账号2：<br>https://jiasupan.top/?qr=okidjewndbjwhbehjEOvz9Vuwsxeeeec <br>
+账号3：<br>https://jiasupan.top/?qr=u4l7iN3CtEvQqb0hpJLoTO6FmInMy5e9
+<br>
+<br>
+
+账号全被被封了刚解开，大家尽量只扫码登录一个客户端使用，避免账号被封，同一ip多设备登录的我这边会踢下线哈！~
 <br>
 10.19号：
 <br>
