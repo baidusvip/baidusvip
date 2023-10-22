@@ -14,7 +14,10 @@
 使用教程：https://note.youdao.com/s/TgYCfkvv
 <br>
 <br>
-
+<br>
+账号被封72小时
+<br>
+<br>
 10.20号：
 <br>
 账号1：<br>https://jiasupan.top/?qr=Sfyp34cT0gPFGsZmixoYChOMvKkrQljd <br>
