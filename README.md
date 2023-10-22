@@ -11,7 +11,7 @@
 ## 望大家且用且珍惜，给个satr让我更有动力！~
 #### 使用请给star，登录后系统自动检测satr数量，未增加的，3分钟后系统自动踢下线~
 <br>
-使用教程：https://note.youdao.com/s/TgYCfkvv
+使用教程：https://www.yuque.com/lingxingwangluo/suvc8n/pg7npbscqlh0638r?singleDoc# 
 <br>
 <br>
 <br>
