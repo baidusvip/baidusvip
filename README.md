@@ -1,4 +1,4 @@
-每日分享百度网盘SVIP超级会员会员账号|百度云会员|百度网盘云账号,不定期更新,欢迎使用.md
+每日分享百度网盘SVIP超级会员会员账号|百度云会员|百度网盘扫码系统|百度网盘共享系统|百度网盘云账号,不定期更新,欢迎使用.md
 <br>
 每日分享，百度会员|百度网盘会员|百度云盘会员|百度网盘SVIP超级会员会员账号|bd账号|bd网盘|百度云会员|百度网盘云账号,不定期更新,欢迎使用
 如果不能用的话，或者失效了请联系VX更新：xzhushou007<br>。
@@ -10,8 +10,17 @@
 <br>
 ## 望大家且用且珍惜，给个satr让我更有动力！~
 #### 使用请给star，登录后系统自动检测satr数量，未增加的，3分钟后系统自动踢下线~
+#### 如需使用同款百度网盘扫码系统的，请联系v：xzhushou007
 <br>
 使用教程：https://www.yuque.com/lingxingwangluo/suvc8n/pg7npbscqlh0638r?singleDoc# 
+<br>
+
+<br>
+满血复活，
+12.20号：
+<br>
+账号1：<br>https://jiasupan.top/?qr=yuG49QfIjRXJDHYrAgpFt0oKOzP3Lm7v <br>
+账号2：<br>https://jiasupan.top/?qr=Oh4S35kTuAMFJzIWpVDeGYZvCgn92PEt <br>
 <br>
 <br>
 <br>
