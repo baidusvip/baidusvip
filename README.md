@@ -16,15 +16,13 @@
 <br>
 
 <br>
-满血复活，
+满血复活！！
 12.20号：
 <br>
 账号1：<br>https://jiasupan.top/?qr=yuG49QfIjRXJDHYrAgpFt0oKOzP3Lm7v <br>
 账号2：<br>https://jiasupan.top/?qr=Oh4S35kTuAMFJzIWpVDeGYZvCgn92PEt <br>
 <br>
-<br>
-<br>
-10.25号：不是不分享..是账号还没解封...
+10.25号：账号还没解封...
 <br>
 <br>
 10.21号：账号被封72小时
