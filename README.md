@@ -15,7 +15,11 @@
 <br>
 使用教程：https://www.yuque.com/lingxingwangluo/suvc8n/pg7npbscqlh0638r?singleDoc# 
 <br>
-
+<br>
+12.29号：
+https://jiasupan.top/?qr=yN061P3X9hUrsg5EKwtZHpcLefbDkvim
+https://jiasupan.top/?qr=yN061P3X9hUrsg5EKwtZHpcLefbDkvim
+<br><br>
 12.28号：
 <br>
 账号1：<br>https://bd.jiasupan.cn/?qr=yN061P3X9hUrsg5EKwtZHpcLefbDkvim <br>
@@ -42,7 +46,7 @@
 12.20号：
 <br>
 账号1：<br>https://jiasupan.top/?qr=yuG49QfIjRXJDHYrAgpFt0oKOzP3Lm7v <br>
-账号2：<br>https://jiasupan.top/?qr=Oh4S35kTuAMFJzIWpVDeGYZvCgn92PEt <br>
+账号2：<br>https://jiasupan.top/?qr=yN061P3X9hUrsg5EKwtZHpcLefbDkvim<br>
 <br>
 10.25号：账号还没解封...
 <br>
